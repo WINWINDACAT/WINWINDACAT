@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @WINWINDACAT
+- 👀 I’m interested in Video Games (I love Pikmin and will definitely help on fangames, but only for modelling or ideas)
+- 🌱 I’m currently learning Code
+- 💞️ I’m looking to collaborate on anything that has to do with games (See line 2)
+- 📫 Discord user: winwindacat_46396
+- 😄 Pronouns: Pluh/Pluhself (I'm/Joking)
+- ⚡ Fun fact: I have Pikmin 1 on GameCube, and I also currently have 809 place visits on Roblox (Who tf asked)
